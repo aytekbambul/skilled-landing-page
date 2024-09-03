@@ -1,1 +1,1 @@
-![ss](/images/skilled-landing-ss.png)
+![ss](/images/skilled-landing-ss-.png)
